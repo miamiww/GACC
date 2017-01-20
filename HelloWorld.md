@@ -5,7 +5,7 @@ I am interested in human-centered machine learning, cyberfeminism, new media,
 and performance art.
 
 ####
-My favorite artists right are [**Physical Education**](http://physsicalleduucationn.wordpress.com/about), a dance collective from
+My favorite artists right now are [**Physical Education**](http://physsicalleduucationn.wordpress.com/about), a dance collective from
 Portland. I just finished working on a project with them and it was a ton of
 fun.
 
