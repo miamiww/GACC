@@ -1,7 +1,7 @@
 ####Hey here is some stuff about me
 This is my twitter [@miamiworldwide][twitterLink]
 
-I am interested in human-centered machine learning, cyberfeminism, new media,
+I am interested in human-centered machine learning, cyberfeminism, 
 and performance art.
 
 ####These are some artists I really like
