@@ -1,3 +1,3 @@
-###Here is one more artist  that I'm really into
+###Here is one more artist  that I'm into
 
-https://www.youtube.com/watch?v=nHujh3yA3BE
+[Holly Herndon](https://www.youtube.com/watch?v=nHujh3yA3BE)
