@@ -4,7 +4,8 @@ This is my twitter [@miamiworldwide][twitterLink]
 I am interested in human-centered machine learning, cyberfeminism, new media,
 and performance art.
 
-####
+####These are some artists I really like
+
 My favorite artists right now are [**Physical Education**](http://physsicalleduucationn.wordpress.com/about), a dance collective from
 Portland. I just finished working on a project with them and it was a ton of
 fun.
